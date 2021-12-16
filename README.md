@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NhatTruong09
-- 👀 I’m interested in the " How to create a reference page" and " design the presentation slides in the Powerpoint" class. 
+- 👀 I’m interested in the " How to create a reference page", " design the presentation slides in the Powerpoint", and " Argument essay" class. 
 - 🌱 I’m currently learning the Introduction to Science and Technology at RMIT university. 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me by email (s3915114@rmit.edu.vn) and Micorsoft teams.
