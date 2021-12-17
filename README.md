@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @NhatTruong09
 - 👀 I’m interested in the " How to create a reference page", " design the presentation slides in the Powerpoint", and " Argument essay" class. 
 - 🌱 I’m currently learning the Introduction to Science and Technology at RMIT university. 
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ..
 - 📫 How to reach me by email (s3915114@rmit.edu.vn) and Micorsoft teams.
  -This is my second-week studying Introduction to Science and Technology. 
  -Action plan to improve my skills: Try to design the presentation slide, and reference page every we, some things that will relate to technology major study for me to easily prepare in the future. 
